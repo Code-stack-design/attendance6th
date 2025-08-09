@@ -1,4 +1,4 @@
-He talked about UI/UX design and product design.
+Frontend.Honestly I was not able to understand what he said but got some idea.
 
 **#screenshot**
 
